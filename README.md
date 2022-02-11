@@ -1,4 +1,4 @@
-### Olá! Eu sou a Leilane Cordeiro. 👩🏻
+### Olá! Eu sou Leilane Cordeiro. 👩🏻
 
 
 - 🔭 I’m currently working on ...
